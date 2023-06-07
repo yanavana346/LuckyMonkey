@@ -1,4 +1,4 @@
-# LuckyMonkey
+# Lucky Monkey
 
 PRIVACY POLICY
 
